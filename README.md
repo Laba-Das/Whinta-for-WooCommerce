@@ -1,0 +1,1 @@
+# Whinta-for-WooCommerce
